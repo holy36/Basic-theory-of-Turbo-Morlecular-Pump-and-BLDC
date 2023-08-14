@@ -1,0 +1,1 @@
+# Basic-theory-of-Turbo-Morlecular-Pump-and-BLDC
